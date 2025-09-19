@@ -67,6 +67,9 @@ For a full comparison of free and paid options—including more platforms with a
 
 That in-depth article covers 15+ services and explains which ones currently provide the most convincing long-term AI companion experience.
 
+➡ For long-term memory features, read our guide to [AI sexting sites with memory](ai-sexting-sites-with-memory.md).
+
+
 ---
 
 *Updated September 2025 · SFW research only*
