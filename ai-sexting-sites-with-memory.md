@@ -49,6 +49,9 @@ Even when memory is a selling point:
 For a complete list of the **best AI girlfriend and sexting platforms**—including free and paid options—  
 👉 see our main guide: [Best AI Girlfriend Apps 2025](https://www.aisextinghub.com/blog/best-ai-girlfriend-apps-2025).
 
+➡ Check also our list of [free AI girlfriend apps](free-ai-girlfriend-no-signup.md) you can try with no sign-up.
+
+
 Return to the [GitHub homepage](https://ai-companion-guides.github.io/) for more SFW guides on AI companion apps.
 
 ---
