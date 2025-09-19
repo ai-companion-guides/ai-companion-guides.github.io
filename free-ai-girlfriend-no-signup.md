@@ -46,6 +46,8 @@ Even when using **free AI girlfriend** apps:
 ## Next Steps
 For a complete breakdown of every top-rated AI companion—including paid options with advanced memory—  
 👉 **[see our main guide: Best AI Girlfriend Apps 2025](https://www.aisextinghub.com/blog/best-ai-girlfriend-apps-2025)**
+…or you can [create your own AI girlfriend](create-ai-girlfriend.md) for a fully custom experience.
+
 
 *Return to the [GitHub homepage](../index.md) for more guides on AI companion privacy and chat apps.*
 
