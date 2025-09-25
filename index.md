@@ -1,7 +1,8 @@
 ---
-title: "Best AI Girlfriend Apps & Sexting Sites 2025 (SFW Guide)"
+title: "Best AI Girlfriend Apps 2025 – SFW Guide"
 layout: default
 ---
+# Best AI Girlfriend Apps & Sexting Sites 2025 (SFW Guide)
 
 Updated {{ "now" | date: "%B %Y" }} – SFW overview.
 
