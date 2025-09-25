@@ -1,5 +1,5 @@
 ---
-title: "Anonymous AI Girlfriend Chat – 2025 No-Login Guide"
+title: "Anonymous AI Girlfriend Chat – 2025"
 layout: default
 ---
 
