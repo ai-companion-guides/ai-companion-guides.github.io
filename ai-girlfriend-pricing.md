@@ -1,7 +1,10 @@
 ---
-title: AI Girlfriend Pricing – Compare Costs of Top Platforms (2025 SFW Guide)
+title: "AI Girlfriend Pricing – 2025 Cost Comparison (SFW)"
+description: "Compare 2025 AI girlfriend app prices, free tiers and trials."
 layout: default
 ---
+
+# AI Girlfriend Pricing – 2025 Cost Comparison (SFW)
 
 Updated September 2025 – SFW research only.
 
