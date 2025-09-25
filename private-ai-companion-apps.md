@@ -1,5 +1,5 @@
 ---
-title: Private AI Companion Apps – Stay Safe & Anonymous (2025 SFW Guide)
+title: "Private AI Companion Apps – 2025 SFW Guide"
 layout: default
 ---
 
