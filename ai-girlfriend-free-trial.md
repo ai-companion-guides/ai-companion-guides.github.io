@@ -1,5 +1,5 @@
 ---
-title: "AI Girlfriend Free Trials – Best 2025 Offers (SFW)"
+title: "AI Girlfriend Free Trials – Best 2025 Offers"
 description: "Explore the best 2025 AI girlfriend free trials to test memory, voice and visuals safely."
 layout: default
 ---
