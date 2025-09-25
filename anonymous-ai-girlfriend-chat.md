@@ -1,7 +1,9 @@
 ---
-title: Anonymous AI Girlfriend Chat – No Login Needed (2025 SFW Guide)
+title: "Anonymous AI Girlfriend Chat – 2025 No-Login Guide"
 layout: default
 ---
+
+# Anonymous AI Girlfriend Chat – No Login Needed (2025 Guide)
 
 Updated September 2025 – SFW research only.
 
