@@ -4,6 +4,7 @@ description: "Discover the safest AI girlfriend and companion chat apps of 2025�
 layout: default
 ---
 
+# Private AI Companion Apps – 2025 SFW Guide
 
 Updated September 2025 – SFW research only.
 
