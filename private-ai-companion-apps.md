@@ -1,7 +1,9 @@
 ---
 title: "Private AI Companion Apps – 2025 SFW Guide"
+description: "Discover the safest AI girlfriend and companion chat apps of 2025—how to stay private and anonymous while you chat."
 layout: default
 ---
+
 
 Updated September 2025 – SFW research only.
 
