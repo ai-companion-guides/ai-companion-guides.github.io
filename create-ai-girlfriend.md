@@ -1,7 +1,8 @@
 ---
-title: How to Create an AI Girlfriend in 2025 (SFW Guide)
+title: How to Create an AI Girlfriend (2025 SFW Guide)
 layout: default
 ---
+# Create an AI Girlfriend – 2025 SFW Guide
 
 *Updated September 2025 – SFW research only*
 
