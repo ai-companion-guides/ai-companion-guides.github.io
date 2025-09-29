@@ -47,4 +47,10 @@ And for the full master list of features and reviews:
 
 Return to the **[GitHub homepage](https://ai-companion-guides.github.io/)** for more SFW AI companion guides.
 
+## FAQ: AI Girlfriend Pricing
+
+**Q: How much do AI girlfriend apps cost in 2025?**  
+A: Most full-featured AI girlfriend platforms range from about $10–20 per month, with low-cost trials and yearly discounts up to 50%.
+
+
 Updated September 2025 · SFW research only.
