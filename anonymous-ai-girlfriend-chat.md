@@ -48,4 +48,10 @@ When you’re ready for the full breakdown of features, pricing and trials, chec
 
 Return to the **[GitHub homepage](https://ai-companion-guides.github.io/)** for more privacy-first AI companion guides.
 
+## FAQ: AI Anonymous Chat
+
+**Q: What is “AI anonymous chat” and how does it work?**  
+A: AI anonymous chat simply means you can talk to an AI girlfriend or companion without creating an account or revealing personal details. The platforms we list let you start chatting instantly—no sign-in needed.
+
+
 Updated September 2025 · SFW research only.
