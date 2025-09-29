@@ -48,4 +48,10 @@ And for complete feature and price comparisons across 15+ platforms, read the ma
 
 Return to the **[GitHub homepage](https://ai-companion-guides.github.io/)** for more SFW AI companion guides.
 
+## FAQ: AI Girlfriend Free Trial
+
+**Q: Where can I get an AI girlfriend free trial?**  
+A: AiAllure offers a $1.99 intro trial and OurDream includes a free tier so you can test features before subscribing.
+
+
 Updated September 2025 · SFW research only.
