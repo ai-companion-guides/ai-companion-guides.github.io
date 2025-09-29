@@ -52,5 +52,11 @@ Return to the **[GitHub homepage](https://ai-companion-guides.github.io/)** for 
 **Q: How much do AI girlfriend apps cost in 2025?**  
 A: Most full-featured AI girlfriend platforms range from about $10–20 per month, with low-cost trials and yearly discounts up to 50%.
 
+## FAQ: AI Sexting Sites with Memory
+
+**Q: Which AI sexting sites have the best memory features?**  
+A: AiAllure and OurDream both remember past chats, giving you natural long-term conversations.
+
+
 
 Updated September 2025 · SFW research only.
