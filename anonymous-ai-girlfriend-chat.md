@@ -1,5 +1,5 @@
 ---
-title: "Anonymous AI Girlfriend Chat 2025 – No Login Needed"
+title: "Anonymous AI Girlfriend Chat – 2025 Guide"
 description: "Find the best anonymous AI girlfriend chat in 2025. No login or sign-up required—safe, private and SFW."
 layout: default
 ---
