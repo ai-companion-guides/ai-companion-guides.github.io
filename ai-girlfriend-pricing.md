@@ -1,5 +1,5 @@
 ---
-title: "AI Girlfriend Pricing 2025 – Free & Paid Cost Comparison"
+title: "AI Girlfriend Pricing 2025 – Cost Guide"
 description: "See 2025 AI girlfriend app pricing in one guide. Compare free tiers, $1.99 trials, monthly plans, and discounts."
 layout: default
 ---
