@@ -1,8 +1,6 @@
----
-title: "AI Girlfriend Free Trials – Best 2025 Offers"
-description: "Explore the best 2025 AI girlfriend free trials to test memory, voice and visuals safely."
+title: "AI Girlfriend Free Trials 2025 – Best Safe Offers"
+description: "Discover the best AI girlfriend free trials in 2025. Safely test memory, voice and visuals before paying."
 layout: default
----
 
 # AI Girlfriend Free Trials – Best 2025 Offers (SFW)
 
