@@ -1,5 +1,5 @@
 ---
-title: "Private AI Companion Apps 2025 – Stay Safe & Anonymous"
+title: "Private AI Companion Apps – 2025"
 description: "Safest private AI girlfriend apps of 2025. Stay anonymous with encrypted chats, no login options, and secure AI companion platforms."
 layout: default
 ---
