@@ -1,5 +1,5 @@
 ---
-title: "Most Realistic AI Girlfriend Apps 2025 – SFW Guide"
+title: "Most Realistic AI Girlfriend Apps 2025"
 description: "Discover the most realistic AI girlfriend apps of 2025. Compare memory, voice, and emotional intelligence for lifelike AI companions."
 layout: default
 ---
