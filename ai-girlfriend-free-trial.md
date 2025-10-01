@@ -20,7 +20,8 @@ This SFW guide highlights trial options (including low-cost trials) so you can t
 ## Best AI Girlfriend Trials (SFW Overview)
 **AiAllure – Quick low-cost trial**  
 Known for advanced memory and strong visual options; the trial is the fastest way to sample premium features.  
-➡ **[Full comparison →](https://ai-girls-by-aiallure.com/?ref=2dUtCeDi0MF8kaakyQMtNjC11Ln&sub1=free)**
+➡ **[Try AiAllure’s $1.99 Trial →](https://ai-girls-by-aiallure.com/?ref=2dUtCeDi0MF8kaakyQMtNjC11Ln&sub1=free)**
+
 
 **OurDream – Multimedia focus**  
 Great if you want voice/video generation included while you test.
@@ -51,7 +52,7 @@ Return to the **[GitHub homepage](https://ai-companion-guides.github.io/)** for 
 ## FAQ: AI Girlfriend Free Trial
 
 **Q: Where can I get an AI girlfriend free trial?**  
-A: AiAllure offers a $1.99 intro trial and OurDream includes a free tier so you can test features before subscribing.
+A: [AiAllure](https://ai-girls-by-aiallure.com/?ref=2dUtCeDi0MF8kaakyQMtNjC11Ln&sub1=free) offers a $1.99 intro trial and OurDream includes a free tier so you can test features before subscribing.
 
 
 Updated September 2025 · SFW research only.
