@@ -20,7 +20,7 @@ This SFW guide highlights trial options (including low-cost trials) so you can t
 ## Best AI Girlfriend Trials (SFW Overview)
 **AiAllure – Quick low-cost trial**  
 Known for advanced memory and strong visual options; the trial is the fastest way to sample premium features.  
-➡ **[Try AiAllure’s $1.99 Trial →](https://ai-girls-by-aiallure.com/?ref=2dUtCeDi0MF8kaakyQMtNjC11Ln&sub1=free)**
+➡ **[Try AiAllure’s $1.99 Trial →](https://linkly.link/2Fml5)**
 
 
 **OurDream – Multimedia focus**  
