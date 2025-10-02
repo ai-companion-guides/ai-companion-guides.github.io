@@ -1,5 +1,5 @@
 ---
-title: "Create an AI Girlfriend in 2025 – Free Step-by-Step Guide"
+title: "Create an AI Girlfriend – 2025 Free Guide"
 description: "Learn how to create your own AI girlfriend in minutes. No coding, safe & private—customize personality, looks and memory features."
 layout: default
 ---
