@@ -1,5 +1,6 @@
 ---
-title: "Best AI Girlfriend Apps 2025 – SFW Guide"
+title: "Best AI Girlfriend Apps 2025 – Free, Realistic & Private Picks"
+description: "See the top AI girlfriend apps in 2025. Compare free trials, realistic AI companions with memory, and private chat options."
 layout: default
 ---
 # Best AI Girlfriend Apps & Sexting Sites 2025 (SFW Guide)
