@@ -1,6 +1,6 @@
 ---
-title: "How to Create an AI Girlfriend (2025 SFW Guide)"
-description: "Step-by-step guide to creating an AI girlfriend in 2025. Learn how to build, customize, and safely chat with your virtual companion."
+title: "Create an AI Girlfriend in 2025 – Free Step-by-Step Guide"
+description: "Learn how to create your own AI girlfriend in minutes. No coding, safe & private—customize personality, looks and memory features."
 layout: default
 ---
 
