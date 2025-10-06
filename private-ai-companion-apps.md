@@ -56,7 +56,16 @@ Private AI chat doesn’t mean boring — it just means **you control what’s r
 For full feature comparisons, check:  
 👉 **[Best AI Girlfriend Apps & Sexting Sites 2025](https://www.aisextinghub.com/blog/best-ai-girlfriend-apps-2025)**  
 
-Return to the **[GitHub homepage](https://ai-companion-guides.github.io/)** for more SFW AI companion research.
+---
+
+## 🔗 Related AI Companion Guides
+
+- [Anonymous AI Girlfriend Chat](https://ai-companion-guides.github.io/anonymous-ai-girlfriend-chat/)  
+- [AI Girlfriend Free Trials 2025](https://ai-companion-guides.github.io/ai-girlfriend-free-trial/)  
+- [Create an AI Girlfriend – Step-by-Step](https://ai-companion-guides.github.io/create-ai-girlfriend/)  
+- [AI Sexting Sites With Memory](https://ai-companion-guides.github.io/ai-sexting-sites-with-memory/)  
+- [Free AI Girlfriend Apps 2025](https://ai-companion-guides.github.io/free-ai-girlfriend-no-signup/)  
+- [AI Girlfriend Pricing 2025](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)  
 
 ---
 
