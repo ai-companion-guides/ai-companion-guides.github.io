@@ -4,7 +4,7 @@ description: "Compare 2025 AI girlfriend app prices, $1.99 trials, and monthly p
 layout: default
 ---
 
-# AI Girlfriend Pricing – 2025 Cost Comparison (SFW)
+# ⭐ AI Girlfriend Pricing – 2025 Cost Comparison (SFW)
 
 Updated October 2025 – SFW research only.
 
