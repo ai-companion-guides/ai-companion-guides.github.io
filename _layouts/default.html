@@ -10,6 +10,58 @@
     <main class="content">
       {{ content }}
     </main>
+
+    {%- comment -%} FAQ schema only on the two target pages {%- endcomment -%}
+    {%- if page.url == "/ai-girlfriend-pricing/" -%}
+    <script type="application/ld+json">
+    {
+      "@context": "https://schema.org",
+      "@type": "FAQPage",
+      "mainEntity": [
+        {
+          "@type": "Question",
+          "name": "How much do AI girlfriend apps cost in 2025?",
+          "acceptedAnswer": { "@type": "Answer", "text": "Most AI girlfriend apps cost between $10 and $20 per month, with free trials and yearly discounts available up to 50%." }
+        },
+        {
+          "@type": "Question",
+          "name": "Which AI girlfriend apps offer the best memory features?",
+          "acceptedAnswer": { "@type": "Answer", "text": "AiAllure and OurDream lead in realistic long-term chat memory that remembers previous conversations for a more natural experience." }
+        },
+        {
+          "@type": "Question",
+          "name": "What is the cheapest AI girlfriend app in 2025?",
+          "acceptedAnswer": { "@type": "Answer", "text": "FantasyGF AI offers plans from around $5.83 per month, making it one of the most affordable options for voice and image chat." }
+        }
+      ]
+    }
+    </script>
+    {%- elsif page.url == "/private-ai-companion-apps/" -%}
+    <script type="application/ld+json">
+    {
+      "@context": "https://schema.org",
+      "@type": "FAQPage",
+      "mainEntity": [
+        {
+          "@type": "Question",
+          "name": "Which AI girlfriend app is the most private in 2025?",
+          "acceptedAnswer": { "@type": "Answer", "text": "AiAllure and OurDream are considered the most private AI girlfriend apps in 2025, offering encrypted chats, optional anonymous logins, and customizable privacy controls." }
+        },
+        {
+          "@type": "Question",
+          "name": "Can I use these AI companion apps completely anonymously?",
+          "acceptedAnswer": { "@type": "Answer", "text": "Yes. Several privacy-first AI companion apps allow you to chat without creating an account or revealing any personal data." }
+        },
+        {
+          "@type": "Question",
+          "name": "How can I stay private while chatting with AI girlfriends?",
+          "acceptedAnswer": { "@type": "Answer", "text": "Use a separate email, review encryption policies, avoid personal identifiers, and browse via incognito or VPN to keep chats fully private." }
+        }
+      ]
+    }
+    </script>
+    {%- endif -%}
+
     <footer>
       <p>Updated {{ "now" | date: "%B %Y" }} · SFW research only</p>
     </footer>
