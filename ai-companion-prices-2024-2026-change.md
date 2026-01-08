@@ -63,7 +63,7 @@ Through 2026, you can expect:
 If you're planning long-term use, yearly is almost always the smarter choice.
 
 Full explanation here:  
-👉 **[Monthly vs Yearly AI Companion Apps: What’s Cheaper in 2026?](monthly-vs-yearly-ai-companion-subscriptions-2026.html)**
+👉 **[Monthly vs Yearly AI Companion Apps: What’s Cheaper in 2026?](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)**
 
 
 Updated January 2026
