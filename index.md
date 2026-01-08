@@ -11,7 +11,7 @@ Updated {{ "now" | date: "%B %Y" }} – SFW overview.
 We analysed how AI companion platforms price monthly and yearly plans in 2026, and which option actually costs less.
 
 Full guide →  
-**[Monthly vs Yearly AI Companion Subscriptions: What’s Cheaper in 2026?](./monthly-vs-yearly-ai-companion-subscriptions-2026.html)**
+**[Monthly vs Yearly AI Companion Subscriptions: What’s Cheaper in 2026?](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)**
 
 
 
