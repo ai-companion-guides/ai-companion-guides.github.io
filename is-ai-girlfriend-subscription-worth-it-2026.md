@@ -45,7 +45,7 @@ Yearly subscribers benefit from:
 - better value if using frequently  
 
 A detailed breakdown of monthly vs yearly pricing is here:  
-👉 [2026 AI companion subscription cost analysis](monthly-vs-yearly-ai-companion-subscriptions-2026.html)
+👉 [2026 AI companion subscription cost analysis](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)
 
 ## Who Should NOT Buy a Subscription
 Skip the subscription if you:
@@ -61,6 +61,6 @@ AI girlfriend subscriptions **are** worth it — but only if you use them consis
 For occasional users, free tiers or short monthly trials are more practical.
 
 Before upgrading, read the cost comparison for 2026:  
-👉 [Monthly vs yearly AI companion subscriptions](monthly-vs-yearly-ai-companion-subscriptions-2026.html)
+👉 [Monthly vs yearly AI companion subscriptions](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)
 
 Updated January 2026
