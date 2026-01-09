@@ -118,7 +118,7 @@ Payment options and currencies may vary slightly by region, but the price-lock a
 
 To see the exact yearly savings available right now, review the official subscription options:
 
-👉 **[See OurDream.ai yearly pricing](https://www.ourdreamersai.com/3D6C519/9B9DM/?uid=36)**
+👉 **[See OurDream.ai yearly pricing](https://ai-companion-guides.github.io/ourdream-yearly-pricing/)**
 
 ---
 
