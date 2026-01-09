@@ -1,4 +1,4 @@
-title: "How AI Companion Prices Changed From 2024 to 2026"
+---
 description: "A clear timeline of how subscription prices increased across AI girlfriend apps from 2024 to 2026."
 layout: default
 ---
