@@ -120,8 +120,6 @@ To see the exact yearly savings available right now, review the official subscri
 
 👉 **[See OurDream.ai yearly pricing](https://www.ourdreamersai.com/3D6C519/9B9DM/?uid=36)**
 
-*(Replace the link with your tracked affiliate URL.)*
-
 ---
 
 *Pricing information reflects subscription tiers commonly available at the time of writing. Always refer to the official pricing page for the latest details.*
