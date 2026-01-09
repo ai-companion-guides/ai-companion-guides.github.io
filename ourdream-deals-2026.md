@@ -34,7 +34,7 @@ Yearly subscriptions usually offer:
 - predictable budget for the year  
 
 Full yearly savings breakdown here:  
-👉 [Monthly vs yearly AI subscription savings (2026)](monthly-vs-yearly-ai-companion-subscriptions-2026.html)
+👉 [Monthly vs yearly AI subscription savings (2026)](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)
 
 ## Trial & Intro Offers
 In some regions, OurDream.ai may offer:
@@ -61,6 +61,6 @@ Choose **Yearly** if you:
 - want the best long-term cost  
 
 More on this logic here:  
-👉 [2026 subscription comparison](monthly-vs-yearly-ai-companion-subscriptions-2026.html)
+👉 [2026 subscription comparison](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)
 
 Updated January 2026
