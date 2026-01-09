@@ -18,7 +18,7 @@ Yearly plans lock in the price for 12 months — even if the platform increases 
 With inflation + rising GPU compute costs, this matters.
 
 Detailed comparison:  
-👉 [Monthly vs yearly price breakdown](monthly-vs-yearly-ai-companion-subscriptions-2026.html)
+👉 [Monthly vs yearly price breakdown](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)
 
 ## 2. You Get Lower Effective Monthly Cost
 A typical difference:
@@ -52,6 +52,6 @@ Many platforms raised prices in 2024 and 2025.
 Yearly subscribers didn’t feel those increases.
 
 Full context here:  
-👉 [AI companion subscription trends 2024–2026](monthly-vs-yearly-ai-companion-subscriptions-2026.html)
+👉 [AI companion subscription trends 2024–2026](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)
 
 Updated January 2026
