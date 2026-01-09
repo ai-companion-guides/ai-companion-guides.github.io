@@ -54,6 +54,6 @@ This avoids:
 - unexpected increases  
 
 Full explanation here:  
-👉 [Monthly vs yearly comparison](monthly-vs-yearly-ai-companion-subscriptions-2026.html)
+👉 [Monthly vs yearly comparison](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)
 
 Updated January 2026
