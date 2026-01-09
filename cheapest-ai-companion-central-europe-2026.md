@@ -33,7 +33,7 @@ Yearly subscriptions offer:
 - higher value in DreamCoins/tokens  
 
 A breakdown of monthly vs yearly is here:  
-👉 [AI subscription yearly savings (2026)](monthly-vs-yearly-ai-companion-subscriptions-2026.html)
+👉 [AI subscription yearly savings (2026)](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)
 
 ## Trials & Special Offers
 Some platforms launch limited-time regional deals, including:
