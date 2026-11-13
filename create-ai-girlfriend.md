@@ -1,12 +1,12 @@
 ---
-title: "Create an AI Girlfriend 2025 – Free Step-by-Step Guide"
+title: "Create an AI Girlfriend 2026 – Free Step-by-Step Guide"
 description: "Learn how to create your own AI girlfriend in minutes. No coding needed. Safe, private & customizable — personality, looks, and memory features included."
 layout: default
 ---
 
-# Create an AI Girlfriend – Free 2025 Guide (SFW)
+# Create an AI Girlfriend – Free 2026 Guide (SFW)
 
-*Updated October 2025 – SFW research only.*
+*Updated November 2026 – SFW research only.*
 
 Want to **create your own AI girlfriend** without coding?  
 This quick guide explains how to build a **realistic AI companion** — safe, private, and surprisingly personal — in under 10 minutes.
@@ -28,7 +28,7 @@ A **custom AI girlfriend** isn’t just a trend — it’s used for:
 
 ### 1️⃣ Pick a Trusted Platform
 Choose a reputable site with transparent **privacy terms** and full **customisation tools**.  
-Top 2025 picks include [AiAllure](https://linkly.link/2Fml5), OurDream, and FantasyGF AI.  
+Top 2026 picks include [AiAllure](https://go.aigfnow.com/aiallure?source_page=%2Fexternal%2Fai-companion-guides%2Fcreate-ai-girlfriend&sub2=acg-create-ai-girlfriend-aiallure-1), OurDream, and FantasyGF AI.  
 Make sure chats are encrypted and memory features can be cleared anytime.
 
 ### 2️⃣ Define Her Personality
@@ -54,16 +54,17 @@ Use the “rate reply” or “improve response” buttons to fine-tune her pers
 
 ### **AiAllure – Best Overall**
 * Advanced long-term memory + realistic visuals  
-* Quick $1.99 trial for full access  
-➡ **[Try AiAllure Now →](https://linkly.link/2Fml5)**
+* Free account to start; paid plans from $9.90/month billed yearly  
+➡ **[Try AiAllure Now →](https://go.aigfnow.com/aiallure?source_page=%2Fexternal%2Fai-companion-guides%2Fcreate-ai-girlfriend&sub2=acg-create-ai-girlfriend-aiallure-2)**
 
 ### **OurDream – Strong Multimedia Chat**
 * Supports **voice & video** calls  
 * Smooth, immersive chat flow
 
-### **FantasyGF AI – Budget Option**
-* Around **$5.83/month**  
-* Lightweight interface, great for beginners
+### **Candy AI – Budget Option**
+* **$3.99/month** on the yearly plan, unlimited text chat  
+* Simple character builder, great for beginners  
+➡ **[See Candy AI →](https://go.aigfnow.com/candy-ai?source_page=%2Fexternal%2Fai-companion-guides%2Fcreate-ai-girlfriend&sub2=acg-create-ai-girlfriend-candy-1)**
 
 *(Descriptions above are strictly SFW summaries.)*
 
@@ -81,14 +82,14 @@ Use the “rate reply” or “improve response” buttons to fine-tune her pers
 ## 🔗 Related AI Companion Guides
 
 - [Free AI Girlfriend Apps – No Sign-Up Needed](https://ai-companion-guides.github.io/free-ai-girlfriend-no-signup/)  
-- [AI Girlfriend Free Trials 2025](https://ai-companion-guides.github.io/ai-girlfriend-free-trial/)  
+- [AI Girlfriend Free Trials 2026](https://ai-companion-guides.github.io/ai-girlfriend-free-trial/)  
 - [Most Realistic AI Girlfriend Apps](https://ai-companion-guides.github.io/realistic-ai-girlfriend/)  
 - [Private AI Companion Apps](https://ai-companion-guides.github.io/private-ai-companion-apps/)  
 - [AI Sexting Sites with Memory](https://ai-companion-guides.github.io/ai-sexting-sites-with-memory/)  
-- [AI Girlfriend Pricing 2025](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)  
+- [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)  
 
 For the full ranking of 15+ platforms:  
-👉 **[Best AI Girlfriend Apps & Sexting Sites 2025](https://www.aisextinghub.com/blog/best-ai-girlfriend-apps-2025)**
+👉 **[Best AI Girlfriend Apps 2026](https://www.aisextinghub.com/blog/best-ai-girlfriend-apps-2026)**
 
 Return to the **[GitHub homepage](https://ai-companion-guides.github.io/)** for more safe & private AI companion tutorials.
 
@@ -100,11 +101,11 @@ Return to the **[GitHub homepage](https://ai-companion-guides.github.io/)** for 
 A: Yes. Platforms like AiAllure and OurDream offer free or low-cost trials so you can test before subscribing.
 
 **Q: What’s the cheapest AI girlfriend builder?**  
-A: FantasyGF AI starts at about $5.83/month — or try AiAllure’s $1.99 intro trial.
+A: Candy AI is the cheapest at $3.99/month on the yearly plan, and AiAllure lets you start with a free account.
 
 **Q: Do I need technical skills?**  
 A: Not at all. These tools are fully visual — you just write a short description and start chatting.
 
 ---
 
-*Updated October 2025 · SFW research only*
+*Updated November 2026 · SFW research only*

@@ -13,7 +13,7 @@ Between 2024 and 2026, almost every platform increased subscription fees — esp
 
 Here's a simple breakdown of what changed, why, and what users can expect going forward.
 
-➡ **[🔥 OurDream 75% OFF Yearly – $9.99/mo (was $39.99) →](https://www.ourdreamersai.com/3D6C519/9B9DM/?uid=38)**
+➡ **[🔥 OurDream Yearly – $9.99/mo (half the $19.99 monthly price) →](https://go.aigfnow.com/ourdream?source_page=%2Fexternal%2Fai-companion-guides%2Fai-companion-prices-2024-2026-change&sub2=acg-ai-companion-prices-2024-2026-change-ourdream-1)**
 
 ---
 
@@ -47,7 +47,7 @@ Monthly plans rose fast — but platforms avoided touching yearly pricing.
 In 2026:
 
 - monthly prices remain high
-- yearly plans still offer 40–75% savings
+- yearly plans still offer 40–70% savings
 - more users switch to annual subscriptions
 - platforms promote yearly discounts to stabilize revenue
 

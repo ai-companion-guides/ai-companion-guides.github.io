@@ -10,7 +10,7 @@ layout: default
 
 Yearly subscriptions for AI companion apps can look expensive upfront, but for regular users they often end up being the most cost-effective option. This guide explains how the OurDream.ai yearly subscription is priced, how much users typically save compared to monthly plans, and who the yearly option is best suited for.
 
-➡ **[🔥 OurDream 75% OFF Yearly – $9.99/mo (was $39.99) →](https://www.ourdreamersai.com/3D6C519/9B9DM/?uid=38)**
+➡ **[🔥 OurDream Yearly – $9.99/mo (half the $19.99 monthly price) →](https://go.aigfnow.com/ourdream?source_page=%2Fexternal%2Fai-companion-guides%2Fourdream-yearly-pricing&sub2=acg-ourdream-yearly-pricing-ourdream-1)**
 
 ---
 
@@ -20,18 +20,18 @@ If you already know you'll use the platform beyond a short trial period, the yea
 
 Based on the current New Year Sale pricing:
 
-- Premium Monthly: $39.99 billed monthly
-- Premium Yearly: $119.88 billed annually (equivalent to $9.99 per month) — **75% OFF**
+- Premium Monthly: $19.99 billed monthly
+- Premium Yearly: $119.88 billed annually (equivalent to $9.99 per month) — **50% less per month**
 
 Over a full year, the difference becomes clear:
 
 | Plan | Total for 12 months |
 |------|---------------------|
-| Monthly | $479.88 |
+| Monthly | $239.88 |
 | Yearly | $119.88 |
-| **You Save** | **$360** |
+| **You Save** | **$120** |
 
-For users who stay subscribed long-term, the yearly plan saves you **75%**.
+For users who stay subscribed long-term, the yearly plan saves you **50%**.
 
 ## 🎁 What You Get With a Yearly OurDream.ai Plan
 
@@ -69,7 +69,7 @@ OurDream.ai is available across Europe, including Germany, Austria, Switzerland,
 
 ## 🔗 Related AI Companion Guides
 
-- [AI Girlfriend Pricing 2025](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
+- [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
 - [OurDream Deals 2026](https://ai-companion-guides.github.io/ourdream-deals-2026/)
 - [How AI Companion Prices Changed 2024–2026](https://ai-companion-guides.github.io/ai-companion-prices-2024-2026-change/)
 - [Why Most Users Switch to Yearly Plans](https://ai-companion-guides.github.io/why-users-switch-to-yearly-ai-companion-plans/)
