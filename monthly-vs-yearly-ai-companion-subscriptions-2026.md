@@ -13,7 +13,7 @@ Because of inflation and rising operating costs, many long-term users now look f
 
 This guide breaks down whether monthly or yearly plans are more cost-effective for AI companion apps in 2026, and why yearly subscribers often end up saving the most.
 
-➡ **[🔥 OurDream 75% OFF Yearly – $9.99/mo (was $39.99) →](https://www.ourdreamersai.com/3D6C519/9B9DM/?uid=38)**
+➡ **[🔥 OurDream Yearly – $9.99/mo (half the $19.99 monthly price) →](https://go.aigfnow.com/ourdream?source_page=%2Fexternal%2Fai-companion-guides%2Fmonthly-vs-yearly-ai-companion-subscriptions-2026&sub2=acg-monthly-vs-yearly-ai-companion-subscriptions-2026-ourdream-1)**
 
 ---
 
@@ -45,23 +45,23 @@ Most AI companion platforms follow a predictable pattern:
 ### Yearly plans
 
 - One upfront payment
-- Effective monthly price reduced by 40–75%
+- Effective monthly price reduced by 40–70%
 - Price locked for a full year
 - Best for regular users who interact consistently
 
 ### Example using current OurDream.ai subscription structure
 
-- Premium Monthly: $39.99 per month
-- Premium Yearly: $119.88 per year (≈ $9.99/month) — **75% OFF**
+- Premium Monthly: $19.99 per month
+- Premium Yearly: $119.88 per year (≈ $9.99/month) — **50% less per month**
 
 12-month comparison:
 
 | Plan | Total for 12 months |
 |------|---------------------|
-| Monthly | $479.88 |
+| Monthly | $239.88 |
 | Yearly | $119.88 |
 
-This means the yearly plan saves you **$360 per year**.
+This means the yearly plan saves you **$120 per year**.
 
 If you interact with your AI companion frequently, the yearly option is almost always the financially smarter choice.
 
@@ -71,7 +71,7 @@ If you interact with your AI companion frequently, the yearly option is almost a
 
 ## 🔒 Price-Locking: The 2026 Strategy Most Users Miss
 
-In 2024 and 2025, several AI platforms raised their monthly fees—but kept yearly pricing unchanged until their next major update.
+In 2024 and 2026, several AI platforms raised their monthly fees—but kept yearly pricing unchanged until their next major update.
 
 This pattern benefits yearly subscribers, because they:
 
@@ -118,7 +118,7 @@ Payment options and currencies may vary slightly by region, but the price-lock a
 
 ## 🔗 Related AI Companion Guides
 
-- [AI Girlfriend Pricing 2025](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
+- [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
 - [OurDream.ai Yearly Subscription](https://ai-companion-guides.github.io/ourdream-yearly-pricing/)
 - [How AI Companion Prices Changed 2024–2026](https://ai-companion-guides.github.io/ai-companion-prices-2024-2026-change/)
 - [Why Most Users Switch to Yearly Plans](https://ai-companion-guides.github.io/why-users-switch-to-yearly-ai-companion-plans/)

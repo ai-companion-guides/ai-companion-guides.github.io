@@ -18,7 +18,7 @@ This page summarizes which plans tend to be the cheapest in 2026 for:
 - Czech Republic
 - Slovenia
 
-➡ **[🔥 Candy AI 70% OFF – $3.99/mo (was $12.99) →](https://t.crjmpy.com/389267/9022/34379?aff_sub5=SF_006OG000004lmDN)**
+➡ **[🔥 Candy AI Yearly – $3.99/mo (was $13.99 monthly) →](https://go.aigfnow.com/candy-ai?source_page=%2Fexternal%2Fai-companion-guides%2Fcheapest-ai-companion-central-europe-2026&sub2=acg-cheapest-ai-companion-central-europe-2026-candy-1)**
 
 ---
 
@@ -80,7 +80,7 @@ Subscription prices in Central Europe have been affected by the same global tren
 
 ## 🔗 Related AI Companion Guides
 
-- [AI Girlfriend Pricing 2025](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
+- [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
 - [OurDream.ai Yearly Subscription](https://ai-companion-guides.github.io/ourdream-yearly-pricing/)
 - [How AI Companion Prices Changed 2024–2026](https://ai-companion-guides.github.io/ai-companion-prices-2024-2026-change/)
 - [Why Most Users Switch to Yearly Plans](https://ai-companion-guides.github.io/why-users-switch-to-yearly-ai-companion-plans/)

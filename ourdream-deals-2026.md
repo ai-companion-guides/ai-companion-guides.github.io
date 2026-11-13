@@ -9,11 +9,11 @@ layout: default
 *Updated January 2026 – SFW research only.*
 
 OurDream.ai is one of the most popular AI companion platforms in Europe and North America.  
-As subscriptions became more complex in 2025–2026, users often ask which plan gives the best value.
+As subscriptions became more complex in 2026–2026, users often ask which plan gives the best value.
 
 This guide summarizes what each option typically includes.
 
-➡ **[🔥 OurDream 75% OFF Yearly – $9.99/mo (was $39.99) →](https://www.ourdreamersai.com/3D6C519/9B9DM/?uid=38)**
+➡ **[🔥 OurDream Yearly – $9.99/mo (half the $19.99 monthly price) →](https://go.aigfnow.com/ourdream?source_page=%2Fexternal%2Fai-companion-guides%2Fourdream-deals-2026&sub2=acg-ourdream-deals-2026-ourdream-1)**
 
 ---
 
@@ -35,14 +35,14 @@ The downside: Monthly is usually the most expensive option per month.
 ## 💰 Yearly Plans (Best Value)
 
 Yearly subscriptions usually offer:
-- **75% lower effective monthly cost** (New Year Sale)
+- **50% lower effective monthly cost** than paying month to month
 - stable pricing for 12 months  
 - +1000 bonus DreamCoins first month
 - +1000 DreamCoins per month
 - unlimited messages
 - video, images, audio unlocked
 
-**Current pricing:** $9.99/mo ($119.88/year) — was $39.99/mo
+**Current pricing (checked November 2026):** $9.99/mo ($119.88/year), versus $19.99 month to month
 
 👉 **[Best AI Sexting Sites 2026](https://www.aisextinghub.com/ai-sexting)**
 
@@ -78,7 +78,7 @@ Choose **Yearly** if you:
 
 ## 🔗 Related AI Companion Guides
 
-- [AI Girlfriend Pricing 2025](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
+- [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
 - [OurDream.ai Yearly Subscription](https://ai-companion-guides.github.io/ourdream-yearly-pricing/)
 - [How AI Companion Prices Changed 2024–2026](https://ai-companion-guides.github.io/ai-companion-prices-2024-2026-change/)
 - [Why Most Users Switch to Yearly Plans](https://ai-companion-guides.github.io/why-users-switch-to-yearly-ai-companion-plans/)

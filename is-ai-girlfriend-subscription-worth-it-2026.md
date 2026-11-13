@@ -15,7 +15,7 @@ So the real question in 2026 is simple:
 
 Let's break it down.
 
-➡ **[🔥 OurDream 75% OFF Yearly – $9.99/mo (was $39.99) →](https://www.ourdreamersai.com/3D6C519/9B9DM/?uid=38)**
+➡ **[🔥 OurDream Yearly – $9.99/mo (half the $19.99 monthly price) →](https://go.aigfnow.com/ourdream?source_page=%2Fexternal%2Fai-companion-guides%2Fis-ai-girlfriend-subscription-worth-it-2026&sub2=acg-is-ai-girlfriend-subscription-worth-it-2026-ourdream-1)**
 
 ---
 
@@ -46,7 +46,7 @@ In these cases, paying monthly for limited features is usually the most expensiv
 
 ## 📅 Why Many Users Choose Yearly in 2026
 
-Most AI platforms raised monthly prices in 2024–2025, but yearly plans stayed stable.
+Most AI platforms raised monthly prices in 2024–2026, but yearly plans stayed stable.
 
 Yearly subscribers benefit from:
 
@@ -56,7 +56,7 @@ Yearly subscribers benefit from:
 - uninterrupted memory/history
 - better value if using frequently
 
-**Example:** OurDream's New Year Sale is **75% off** — just $9.99/mo ($119.88/year) with +1000 bonus DreamCoins.
+**Example:** OurDream's yearly plan is $9.99/mo ($119.88/year) instead of $19.99 month to month, with 1,000 DreamCoins a month.
 
 👉 **[Best AI Sexting Sites 2026](https://www.aisextinghub.com/ai-sexting)**
 
@@ -82,7 +82,7 @@ For occasional users, free tiers or short monthly trials are more practical.
 
 ## 🔗 Related AI Companion Guides
 
-- [AI Girlfriend Pricing 2025](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
+- [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
 - [OurDream.ai Yearly Subscription](https://ai-companion-guides.github.io/ourdream-yearly-pricing/)
 - [How AI Companion Prices Changed 2024–2026](https://ai-companion-guides.github.io/ai-companion-prices-2024-2026-change/)
 - [Why Most Users Switch to Yearly Plans](https://ai-companion-guides.github.io/why-users-switch-to-yearly-ai-companion-plans/)
