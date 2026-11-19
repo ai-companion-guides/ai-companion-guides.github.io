@@ -43,6 +43,8 @@ Video is the feature people actually upgrade for in 2026 — and the one with th
 
 ## 🔗 Related AI Companion Guides
 
+- [Best AI Video Generators for AI Companions](https://ai-companion-guides.github.io/best-ai-video-generators-for-companions-2026/)
+- [Image to Video in AI Companion Apps](https://ai-companion-guides.github.io/image-to-video-ai-companion-apps-2026/)
 - [AiAllure vs OurDream](https://ai-companion-guides.github.io/aiallure-vs-ourdream-2026/)
 - [Apps With Unlimited Images & Video](https://ai-companion-guides.github.io/ai-girlfriend-apps-with-unlimited-images-and-video-2026/)
 - [Best Premium AI Girlfriend Apps 2026](https://ai-companion-guides.github.io/best-premium-ai-girlfriend-apps-2026/)
