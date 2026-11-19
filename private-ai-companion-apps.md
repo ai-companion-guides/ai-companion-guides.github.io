@@ -58,6 +58,8 @@ For full feature comparisons, check:
 
 ---
 
+➡ Our 18+ ranking with privacy notes: [best AI porn sites compared](https://www.aisextinghub.com/best-ai-porn-sites).
+
 ## 🔗 Related AI Companion Guides
 
 - [Anonymous AI Girlfriend Chat](https://ai-companion-guides.github.io/anonymous-ai-girlfriend-chat/)  

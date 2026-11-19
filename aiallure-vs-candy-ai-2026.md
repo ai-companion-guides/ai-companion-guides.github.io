@@ -35,6 +35,8 @@ The most common upgrade question of 2026: pay **$3.99/month** at Candy AI or **$
 
 ---
 
+➡ Both apps in the full 18+ ranking: [best AI porn sites compared](https://www.aisextinghub.com/best-ai-porn-sites).
+
 ## 🔗 Related AI Companion Guides
 
 - [Best Premium AI Girlfriend Apps 2026](https://ai-companion-guides.github.io/best-premium-ai-girlfriend-apps-2026/)

@@ -116,6 +116,8 @@ Payment options and currencies may vary slightly by region, but the price-lock a
 
 ---
 
+➡ Yearly prices of the adult apps side by side: [top AI porn sites](https://www.aisextinghub.com/best-ai-porn-sites) (18+).
+
 ## 🔗 Related AI Companion Guides
 
 - [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)

@@ -86,3 +86,5 @@ A: Candy AI at **$3.99/month** on the yearly plan ($47.88 billed once), with unl
 ---
 
 *Updated November 2026 · SFW research only*
+
+➡ Adult-app prices side by side: [best AI porn sites](https://www.aisextinghub.com/best-ai-porn-sites) (18+).

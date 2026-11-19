@@ -72,6 +72,8 @@ Return to the **[GitHub homepage](https://ai-companion-guides.github.io/)** for 
 
 ---
 
+➡ Our 18+ shortlist with prices and limits: [top AI porn sites](https://www.aisextinghub.com/best-ai-porn-sites).
+
 ## ❓ FAQ: AI Sexting Sites with Memory
 
 **Q: Which AI sexting sites have the best memory?**  
