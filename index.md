@@ -21,11 +21,18 @@ We research what AI companion subscriptions actually cost in 2026 and which prem
 - [Tokens vs Unlimited Plans – the real cost](https://ai-companion-guides.github.io/ai-girlfriend-tokens-vs-unlimited-plans-2026/)
 - [Is an AI Girlfriend Subscription Worth It?](https://ai-companion-guides.github.io/is-ai-girlfriend-subscription-worth-it-2026/)
 - [AI Companion Video Generation Compared](https://ai-companion-guides.github.io/ai-companion-video-generation-compared-2026/)
+- [Best AI Video Generators for AI Companions](https://ai-companion-guides.github.io/best-ai-video-generators-for-companions-2026/)
+- [Image to Video in AI Companion Apps](https://ai-companion-guides.github.io/image-to-video-ai-companion-apps-2026/)
 
 ## ⚔️ Head-to-head comparisons
 
 - [AiAllure vs OurDream](https://ai-companion-guides.github.io/aiallure-vs-ourdream-2026/)
 - [AiAllure vs Candy AI](https://ai-companion-guides.github.io/aiallure-vs-candy-ai-2026/)
+
+## 🔎 App reviews & pricing
+
+- [AiAllure Review 2026](https://ai-companion-guides.github.io/aiallure-review-2026/)
+- [AiAllure Pricing & Plans 2026](https://ai-companion-guides.github.io/aiallure-pricing-plans-2026/)
 
 ## 💶 Pricing research
 
