@@ -71,6 +71,8 @@ If you're still deciding whether a subscription makes sense at all, the yearly o
 
 ---
 
+➡ Yearly deals across the adult apps: [best AI porn sites](https://www.aisextinghub.com/best-ai-porn-sites) (18+).
+
 ## 🔗 Related AI Companion Guides
 
 - [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)

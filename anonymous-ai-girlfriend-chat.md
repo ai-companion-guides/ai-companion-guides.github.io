@@ -67,6 +67,8 @@ Return to the **[GitHub homepage](https://ai-companion-guides.github.io/)** for 
 
 ---
 
+➡ Our 18+ shortlist, ranked by value: [best AI porn site for the money](https://www.aisextinghub.com/best-ai-porn-sites).
+
 ## ❓ FAQ: Anonymous AI Girlfriend Chat
 
 **Q: What is anonymous AI chat?**  

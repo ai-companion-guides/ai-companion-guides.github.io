@@ -38,6 +38,8 @@ The break-even is simple: **if you generate media more than a couple of days a w
 
 ---
 
+➡ Video cost per clip, tested: [best AI porn video generators](https://www.aisextinghub.com/ai-porn-video-generators) (18+).
+
 ## 🔗 Related AI Companion Guides
 
 - [Best Premium AI Girlfriend Apps 2026](https://ai-companion-guides.github.io/best-premium-ai-girlfriend-apps-2026/)
@@ -45,7 +47,7 @@ The break-even is simple: **if you generate media more than a couple of days a w
 - [Monthly vs Yearly AI Companion Plans](https://ai-companion-guides.github.io/monthly-vs-yearly-ai-companion-subscriptions-2026/)
 - [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
 
-Full cost breakdowns per app: **[AI Companion Hub](https://www.aisextinghub.com/best-ai-porn-sites)**.
+Full cost breakdowns per app: **[best AI porn sites compared](https://www.aisextinghub.com/best-ai-porn-sites)** (18+).
 
 ---
 

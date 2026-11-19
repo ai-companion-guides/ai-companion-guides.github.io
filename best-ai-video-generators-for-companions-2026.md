@@ -35,6 +35,8 @@ Full hands-on tests with real sample clips: **[AI adult video generators compare
 
 ---
 
+➡ The full 18+ app ranking with prices: [best AI porn sites](https://www.aisextinghub.com/best-ai-porn-sites).
+
 ## 🔗 Related AI Companion Guides
 
 - [Image-to-Video in AI Companion Apps](https://ai-companion-guides.github.io/image-to-video-ai-companion-apps-2026/)
