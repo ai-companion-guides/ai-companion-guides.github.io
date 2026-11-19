@@ -54,6 +54,11 @@ We research what AI companion subscriptions actually cost in 2026 and which prem
 - [Anonymous AI Girlfriend Chat](https://ai-companion-guides.github.io/anonymous-ai-girlfriend-chat/)
 - [Private AI Companion Apps](https://ai-companion-guides.github.io/private-ai-companion-apps/)
 
+## 🔞 18+ rankings on AI Companion Hub
+
+- [Best AI porn sites 2026 – ranked by price and limits](https://www.aisextinghub.com/best-ai-porn-sites)
+- [Best AI porn video generators 2026 – tested with real clips](https://www.aisextinghub.com/ai-porn-video-generators)
+
 ---
 
 For full platform reviews, screenshots and side-by-side tests, visit **[AI Companion Hub](https://www.aisextinghub.com/ai-sexting)**.

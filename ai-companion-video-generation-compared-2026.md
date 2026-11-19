@@ -41,6 +41,8 @@ Video is the feature people actually upgrade for in 2026 — and the one with th
 
 ---
 
+➡ Beyond video, the full 18+ app ranking: [best AI porn sites 2026](https://www.aisextinghub.com/best-ai-porn-sites).
+
 ## 🔗 Related AI Companion Guides
 
 - [Best AI Video Generators for AI Companions](https://ai-companion-guides.github.io/best-ai-video-generators-for-companions-2026/)

@@ -42,6 +42,8 @@ Full review with screenshots and sample clips: **[AiAllure review](https://www.a
 
 ---
 
+➡ See where AiAllure lands in our 18+ ranking: [best AI porn sites](https://www.aisextinghub.com/best-ai-porn-sites).
+
 ## 🔗 Related AI Companion Guides
 
 - [AiAllure Pricing & Plans 2026](https://ai-companion-guides.github.io/aiallure-pricing-plans-2026/)
