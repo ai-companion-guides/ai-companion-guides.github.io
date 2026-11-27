@@ -55,6 +55,9 @@ Full list with exact free limits for every app: **[Free AI sexting & girlfriend 
 
 ➡ Free plans of the adult apps compared: [best AI porn sites](https://www.aisextinghub.com/best-ai-porn-sites) (18+).
 
+
+➡ Free message limits on the main adult chat sites: [NSFW AI chat ranking](https://www.aisextinghub.com/nsfw-ai-chat) (18+).
+
 ## 🔗 Related AI Companion Guides
 
 - **[Best Premium AI Girlfriend Apps 2026 – which are worth paying for](https://ai-companion-guides.github.io/best-premium-ai-girlfriend-apps-2026/)**  

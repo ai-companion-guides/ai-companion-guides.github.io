@@ -58,6 +58,10 @@ We research what AI companion subscriptions actually cost in 2026 and which prem
 
 - [Best AI porn sites 2026 – ranked by price and limits](https://www.aisextinghub.com/best-ai-porn-sites)
 - [Best AI porn video generators 2026 – tested with real clips](https://www.aisextinghub.com/ai-porn-video-generators)
+- [NSFW AI chat – the best AI sex chat sites and free messages](https://www.aisextinghub.com/nsfw-ai-chat)
+- [AI girlfriend creator – six builders compared](https://www.aisextinghub.com/ai-girlfriend-creator)
+- [Janitor AI alternatives – no proxy, no API key](https://www.aisextinghub.com/blog/janitor-ai-alternatives)
+- [Character AI alternatives that allow adult chat](https://www.aisextinghub.com/blog/character-ai-alternatives)
 
 ---
 

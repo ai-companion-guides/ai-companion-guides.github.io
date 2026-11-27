@@ -83,3 +83,5 @@ A: [AiAllure](https://go.aigfnow.com/aiallure?source_page=%2Fexternal%2Fai-compa
 ---
 
 *Updated November 2026 · SFW research only*
+
+➡ Character AI blocks adult chat. Sites that allow it: [Character AI alternatives](https://www.aisextinghub.com/blog/character-ai-alternatives) (18+).
