@@ -60,6 +60,9 @@ For full feature comparisons, check:
 
 ➡ Our 18+ ranking with privacy notes: [best AI porn sites compared](https://www.aisextinghub.com/best-ai-porn-sites).
 
+
+➡ Tired of proxies and API keys? [Janitor AI alternatives](https://www.aisextinghub.com/blog/janitor-ai-alternatives) and [SpicyChat alternatives](https://www.aisextinghub.com/blog/spicychat-alternatives) (18+).
+
 ## 🔗 Related AI Companion Guides
 
 - [Anonymous AI Girlfriend Chat](https://ai-companion-guides.github.io/anonymous-ai-girlfriend-chat/)  

@@ -78,6 +78,9 @@ Choose **Yearly** if you:
 
 ➡ OurDream against the other video apps: [best AI porn video generators 2026](https://www.aisextinghub.com/ai-porn-video-generators) (18+).
 
+
+➡ Is there a working OurDream promo code? What actually lowers the price: [OurDream AI promo code and real discounts](https://www.aisextinghub.com/blog/ourdream-ai-promo-code) (18+).
+
 ## 🔗 Related AI Companion Guides
 
 - [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)

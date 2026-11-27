@@ -88,3 +88,5 @@ A: Absolutely. AiAllure has a free account to start, and GirlfriendGPT has a lim
 ---
 
 *Updated November 2026 · SFW research only*
+
+➡ Coming from Replika, Kindroid or Nomi? [Replika alternatives with memory and adult chat](https://www.aisextinghub.com/blog/replika-alternatives) (18+).
