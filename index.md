@@ -34,6 +34,21 @@ We research what AI companion subscriptions actually cost in 2026 and which prem
 - [AiAllure Review 2026](https://ai-companion-guides.github.io/aiallure-review-2026/)
 - [AiAllure Pricing & Plans 2026](https://ai-companion-guides.github.io/aiallure-pricing-plans-2026/)
 
+## 🆕 Alternatives & deals (November 2026)
+
+- [Janitor AI Alternatives – no proxy, no API key](https://ai-companion-guides.github.io/janitor-ai-alternatives-2026/)
+- [SpicyChat Alternatives – better memory](https://ai-companion-guides.github.io/spicychat-alternatives-2026/)
+- [Character AI Alternatives for Adults](https://ai-companion-guides.github.io/character-ai-alternatives-2026/)
+- [Promptchan & PornX Alternatives – no credit counting](https://ai-companion-guides.github.io/ai-image-generator-without-credits-2026/)
+- [Replika, Kindroid & Nomi Alternatives](https://ai-companion-guides.github.io/replika-kindroid-nomi-alternatives-2026/)
+- [OurDream Promo Code – is there one?](https://ai-companion-guides.github.io/ourdream-promo-code-2026/)
+- [AiAllure Lifetime Deal – pay once](https://ai-companion-guides.github.io/aiallure-lifetime-deal-2026/)
+
+## 🇩🇪 Auf Deutsch
+
+- [KI Freundin Apps 2026](https://ai-companion-guides.github.io/ki-freundin-apps-2026/)
+- [KI Chat für Erwachsene 2026](https://ai-companion-guides.github.io/ki-chat-fuer-erwachsene-2026/)
+
 ## 💶 Pricing research
 
 - [AI Girlfriend Pricing 2026](https://ai-companion-guides.github.io/ai-girlfriend-pricing/)
